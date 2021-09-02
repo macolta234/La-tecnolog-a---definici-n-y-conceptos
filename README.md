@@ -1,2 +1,2 @@
-# La-tecnolog-a---definici-n-y-conceptos
+# La-tecnologia - definiciony conceptos
 La tecnología
